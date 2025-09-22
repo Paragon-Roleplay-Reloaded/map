@@ -1,0 +1,6 @@
+Credits -----> https://forum.cfx.re/t/release-postal-code-map-minimap-new-improved-v1-2/147458
+Credits -----> https://forum.cfx.re/t/release-postal-code-map-minimap-new-improved-v1-2/147458
+Credits -----> https://forum.cfx.re/t/release-postal-code-map-minimap-new-improved-v1-2/147458
+Credits -----> https://forum.cfx.re/t/release-postal-code-map-minimap-new-improved-v1-2/147458
+
+Postal map without blurry postal code
